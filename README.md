@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Kapo
+- 👀 I’m interested in Game、Marvel Comics、MOTO🏍
+- 🌱 I’m currently learning Dotnet
+- 💞️ I’m looking to Learning together
+- 📫 To reach me Email: nn517643054@163.com
